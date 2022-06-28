@@ -4,3 +4,7 @@
 ## Egresado Ingeniería en Diseño
 
 ### *Experiencia:* NEAST
+
+*Desarrollo de productos
+*Diseño web
+*Imagen gráfica
